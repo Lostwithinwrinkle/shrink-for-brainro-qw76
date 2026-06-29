@@ -1,4 +1,4 @@
-
+shrink for brainrots Scripts stealth offers the most advanced shrink for brainrots Script, with aimbot and fly. Perfect for dominating any match.
 
 
 
